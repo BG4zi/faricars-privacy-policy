@@ -1,1 +1,0 @@
-# faricars-privacy-policy
